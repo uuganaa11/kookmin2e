@@ -1,1 +1,1 @@
-# kookmin2ee
+# kookmin2e
